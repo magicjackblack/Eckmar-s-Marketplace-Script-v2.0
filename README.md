@@ -4,4 +4,4 @@
 
 **Installation Guide:** https://www.scribd.com/document/429784743/Eckmar-s-Marketplace-Script-v2-0-UPDATED-2019-10-10
 
-**Download Source Code:** https://gourl.io/zdauv
+**Download Source Code - DISCOUNTED FROM $599 TO $99:** https://gourl.io/zdauv
